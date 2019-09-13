@@ -23,8 +23,8 @@ not all the fucking rasta
 
 rasta, taste that about the rest
 another believer that cares for a reason
-take it or leave it
-of fucking it up
+take it or leave it - ooo
+fucking it up
 
 this is the season, for bliss apparition
 never a treason to reflect at the deeds
