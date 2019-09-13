@@ -16,6 +16,20 @@ Description.
 ## Lyrics
 
 ```
+I knew I can't relate yooo aye
+(try to shut it out)
+not all the fucking rasta
+(all/lead the way)
+
+rasta, taste that about the rest
+another believer that cares for a reason
+take it or leave it after
+fucking it up
+
+
+smoke at the fact
+
+
 
 
 ```
