@@ -28,8 +28,8 @@ of fucking it up
 
 this is the season, for bliss apparition
 never a treason to reflect at the deeds
-smoke at the fact of great intition
-to grow your soul in the garden of blight
+smoke at the fact of great intuition
+to grow your blight soul in the garden of seeds
 
 
 
