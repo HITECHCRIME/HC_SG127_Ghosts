@@ -23,11 +23,13 @@ not all the fucking rasta
 
 rasta, taste that about the rest
 another believer that cares for a reason
-take it or leave it after
-fucking it up
+take it or leave it
+of fucking it up
 
-
-smoke at the fact
+this is the season, for bliss apparition
+never a treason to reflect at the deeds
+smoke at the fact of great intition
+to grow your soul in the garden of blight
 
 
 
