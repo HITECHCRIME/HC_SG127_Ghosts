@@ -6,13 +6,12 @@
 
 ## Project Data
 
-Description.
-https://www.youtube.com/watch?v=ybBq01bcGns&t=64s
-[FREE] DARK TRAP GHOSTEMANE X RONNY J HEAVY 808 TYPE BEAT 2018 - STRIFE [PROD. COLE THE KING]
+Beat link: https://www.youtube.com/watch?v=ybBq01bcGns&t=64s
+Name of the beat: [FREE] DARK TRAP GHOSTEMANE X RONNY J HEAVY 808 TYPE BEAT 2018 - STRIFE [PROD. COLE THE KING]
 
 **Title:**  / **Featuring:** 
 
-**Production:**  / **Lyrics:** 
+**Production:** Cole the King / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
