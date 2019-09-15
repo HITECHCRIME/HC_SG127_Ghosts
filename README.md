@@ -17,10 +17,11 @@ https://www.youtube.com/watch?v=ybBq01bcGns&t=64s
 ## Lyrics
 
 ```
-I knew I can't relate yooo aye
-(try to shut it out)
-not all the fucking rasta
-(all/lead the way)
+I knew I can't relate yooo skra aye
+try to shut it out
+stuck it up at the fucking rasta
+fucking rasta aye 
+fucking afta right (all/lead the way)
 
 rasta, taste that about the rest
 another believer that cares for a reason
