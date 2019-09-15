@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Ghosts of Allure [Directive Protocol Ω] 
 
-**Listen now:** x
+**Listen now:** 
 
 ## Project Data
 
