@@ -1,4 +1,4 @@
-[cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
+![](hc_sg127_cover.png)
 
 # MOTHNODE_ Ghosts of Allure [Directive Protocol Ω] 
 
