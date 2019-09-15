@@ -32,9 +32,6 @@ never a treason to reflect at the deeds
 smoke at the fact of great intuition
 to grow your soul's blight in the garden of seeds
 
-
-
-
 ```
 
 ## Lyrics Production
