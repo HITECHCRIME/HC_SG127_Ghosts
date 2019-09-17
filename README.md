@@ -36,11 +36,11 @@ to the established order blood
 sudden - betrayal 
 of the honoured folks
 
-x quick
-
 stuck like a bru aye a bad exp 
 x x x
 to lick the top of the crux
+
+x quick
 
 Last part of the song:
 
