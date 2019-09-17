@@ -31,12 +31,13 @@ fucking 'nother rasta ey ya
 
 don't you listen x x x
 
+
+Last part of the song:
+
 rasta, taste that about the rest
 another believer that cares for a reason
 take it or leave it - ooo
 fucking it up
-
-
 
 this is the season, for bliss apparition
 never a treason to reflect at the deeds
