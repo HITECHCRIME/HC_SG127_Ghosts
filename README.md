@@ -23,7 +23,7 @@ fucking rasta aye
 fucking afta right (all/lead the way)
 
 focal point of all the dissing
-ol fuck it up
+bold fuck it up
 to look it up
 
 fucking rasta
