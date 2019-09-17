@@ -15,7 +15,6 @@ Name of the beat: [FREE] DARK TRAP GHOSTEMANE X RONNY J HEAVY 808 TYPE BEAT 2018
 
 ## Lyrics
 
-
 ```
 I knew I can't relate yooo
 skra aye, shh shh, try to shut it out
