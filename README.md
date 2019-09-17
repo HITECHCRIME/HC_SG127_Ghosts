@@ -22,8 +22,7 @@ stuck it up at the fucking rasta (hide it ayayayayaya)
 fucking rasta aye 
 fucking afta right (all/lead the way)
 
-focal point of 
-
+focal point of all the dissing
 fuck it up
 o fuck it up
 
