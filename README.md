@@ -22,12 +22,14 @@ stuck it up at the fucking rasta (hide it ayayayayaya)
 fucking rasta aye 
 fucking afta right (all/lead the way)
 
+focal point of 
 
 fuck it up
 o fuck it up
 
 rasta, taste that about the rest
 another believer that cares for a reason
+
 take it or leave it - ooo
 fucking it up
 
