@@ -26,15 +26,13 @@ focal point of all the dissing
 ol fuck it up
 to look it up
 
-
 fucking rasta
 fucking 'nother rasta ey ya
 
-don't listen x x x
+don't you listen x x x
 
 rasta, taste that about the rest
 another believer that cares for a reason
-
 take it or leave it - ooo
 fucking it up
 
