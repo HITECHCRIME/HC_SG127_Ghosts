@@ -26,7 +26,7 @@ fucking afta' right (all/lead the way)
 
 focal point of all the dissing's 
 not too bold "fuck it up" 
-don't look it up
+don't (to) look it up
 
 fucking rasta
 fucking 'nother rasta ey ya
