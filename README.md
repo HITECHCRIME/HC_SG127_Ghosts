@@ -18,9 +18,13 @@ Name of the beat: [FREE] DARK TRAP GHOSTEMANE X RONNY J HEAVY 808 TYPE BEAT 2018
 ```
 I knew I can't relate yooo skra aye
 try to shut it out
-stuck it up at the fucking rasta
+stuck it up at the fucking rasta (hide it ayayayayaya)
 fucking rasta aye 
 fucking afta right (all/lead the way)
+
+
+fuck it up
+o fuck it up
 
 rasta, taste that about the rest
 another believer that cares for a reason
