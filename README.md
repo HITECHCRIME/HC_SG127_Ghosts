@@ -26,11 +26,15 @@ focal point of all the dissing
 fuck it up
 o fuck it up
 
+don't listen x x x
+
 rasta, taste that about the rest
 another believer that cares for a reason
 
 take it or leave it - ooo
 fucking it up
+
+
 
 this is the season, for bliss apparition
 never a treason to reflect at the deeds
