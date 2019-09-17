@@ -20,11 +20,13 @@ I knew I can't relate yooo
 skra aye, shh shh, try to shut it out
 stuck it up at the fucking rasta 
 (hide it ayayayayaya, stuck it up aye)
-fucking rasta aye 
-fucking afta right (all/lead the way)
 
-focal point of all the dissing
-bold fuck it up, to look it up
+fucking rasta aye 
+fucking afta' right (all/lead the way)
+
+focal point of all the dissing's 
+not too bold "fuck it up" 
+don't look it up
 
 fucking rasta
 fucking 'nother rasta ey ya
