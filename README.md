@@ -30,7 +30,11 @@ fucking rasta
 fucking 'nother rasta ey ya
 
 don't you listen to the established order
-sudden betrayal of the honoured x x x
+sudden betrayal of the honoured folks
+
+x quick
+
+x quick
 
 Last part of the song:
 
@@ -40,7 +44,7 @@ take it or leave it - ooo
 fucking it up
 
 this is the season, for bliss apparition
-never a treason to reflect at the deeds
+(coz it's) never a treason to reflect at the deeds
 smoke at the fact of great intuition
 to grow your soul's blight in the garden of seeds
 
