@@ -36,8 +36,8 @@ of the honoured folks
 
 x quick
 
-stuck in it like a bru a bad exp 
-to lick the crux of your extent
+stuck like a bru aye a bad exp 
+to lick the top of the crux
 x quick
 
 Last part of the song:
