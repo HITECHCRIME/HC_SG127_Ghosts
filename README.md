@@ -16,24 +16,28 @@ Name of the beat: [FREE] DARK TRAP GHOSTEMANE X RONNY J HEAVY 808 TYPE BEAT 2018
 ## Lyrics
 
 ```
-I knew I can't relate yooo skra aye
-try to shut it out
-stuck it up at the fucking rasta (hide it ayayayayaya, stuck it up)
+I knew I can't relate yooo
+skra aye, shh shh, try to shut it out
+stuck it up at the fucking rasta 
+(hide it ayayayayaya, stuck it up aye)
 fucking rasta aye 
 fucking afta right (all/lead the way)
 
 focal point of all the dissing
-bold fuck it up
-to look it up
+bold fuck it up, to look it up
 
 fucking rasta
 fucking 'nother rasta ey ya
 
-don't you listen to the established order
-sudden betrayal of the honoured folks
+don't you listen 
+to the established order blood
+sudden betrayal 
+of the honoured folks
 
 x quick
 
+stuck in it like a bru a bad exp 
+to lick the crux of your extent
 x quick
 
 Last part of the song:
