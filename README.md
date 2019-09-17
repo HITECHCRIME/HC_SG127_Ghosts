@@ -26,6 +26,9 @@ focal point of all the dissing
 ol fuck it up
 to fuck it up
 
+
+fucking rasta
+
 don't listen x x x
 
 rasta, taste that about the rest
