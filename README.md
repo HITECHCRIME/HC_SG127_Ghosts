@@ -29,8 +29,8 @@ to look it up
 fucking rasta
 fucking 'nother rasta ey ya
 
-don't you listen x x x
-
+don't you listen to the established order
+sudden betrayal of the honoured x x x
 
 Last part of the song:
 
