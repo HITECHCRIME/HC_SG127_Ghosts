@@ -73,6 +73,22 @@ to grow your soul's blight in the garden of seeds
 
 ## Notes
 
+MOTHNODE_ Ghosts of Allure [Directive Protocol Ω]
+
+/// FULL SONG PROTOTYPE ]|
+.
+/// "i knew i can’t relate ye, try to shut it out”
+.
+/// MICROLABEL_ @hitechcrime /// USER_ @mothnode
+/// TARGET_ HC_SG127
+.
+/// STATUS_ FULL SONG PROTOTYPE
+/// LISTEN TO REGULAR SONG DEV
+/// MORE ACCESS @mothnode
+/// TELEGRAM LIVE OPS_ t.me/hitechops
+.
+/// NODE STEMS #trapmusic #darktrap #trapstar #trapcartel #humanedge #hitechcrime #futurap #chantrap #raw #irl #kaleidoscope #visuals #mirror #audiovisual #experiments #trapcore #trap #rap #hiphop #rapper #metal #deathcore #heavymusic
+
 ## Music Video
 Hitech Techwear Squad / swagga / brutal
 rotating elements
